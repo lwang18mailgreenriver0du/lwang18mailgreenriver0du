@@ -1,16 +1,17 @@
-### Hi there 👋
 
-<!--
-**lwang18mailgreenriver0du/lwang18mailgreenriver0du** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## More About Me:woman:
 
-Here are some ideas to get you started:
+:purple_heart: Kind people are my kinda people
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+:100: Radical for Jesus
+
+:star: Uniquely naive tho independent
+
+:apple: Beginner mindset (**open to learning**)
+
+:sparkles: Child at heart (**i see the world as magical**)
+
+
+>*I love to race in where angels fear to tread. Committed to face fears & overcome them. In order to escape any feeling of being stuck, i often travel.*
+
+
